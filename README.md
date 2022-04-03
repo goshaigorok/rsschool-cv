@@ -1,1 +1,1 @@
-# rsschool-cv
+https://goshaigorok.github.io/rsschool-cv/cv
